@@ -1,0 +1,1 @@
+# Timeisnow-FiveForces-SWOT-Strategy
